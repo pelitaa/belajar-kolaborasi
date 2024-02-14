@@ -1,2 +1,2 @@
 # belajar-kolaborasi
-sangat seru
+sangat seru belajar
