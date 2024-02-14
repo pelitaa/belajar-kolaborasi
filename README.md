@@ -1,2 +1,2 @@
 # belajar-kolaborasi
-sangat seru belajar
+sangat seru belajar di Dicoding!
